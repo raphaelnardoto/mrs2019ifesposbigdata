@@ -39,7 +39,7 @@ Na mesma época outros mensageiros como o MSN e o ICQ surgiram e se tornaram bas
 MSN ganhou força no Brasil nos anos 2000.
 
 
-Em 2014 surgiu o Orkut.
+Em 2004 surgiu o Orkut.
 
 ##Instagram
 
